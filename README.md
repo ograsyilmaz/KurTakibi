@@ -1,6 +1,6 @@
 
 
-Bloomberght dolor bilgi dataları  alıp.
+Bloomberght dolar bilgi dataları  alıp.
 
 
 
